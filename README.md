@@ -1,0 +1,3 @@
+- hi im occ
+- dont talk to me
+- i prefer working alone
